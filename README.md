@@ -1,5 +1,5 @@
 ### Hi there 👋
-![tenor](https://github.com/tonishantyadav/tonishantyadav/assets/91500634/eb61dce6-84d5-454e-82fc-28bce41d9920)
+![6vIk](https://github.com/tonishantyadav/tonishantyadav/assets/91500634/2d0908ec-976b-4cea-81d1-cb23fc8ebef5)
 
 <!--
 **tonishantyadav/tonishantyadav** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
